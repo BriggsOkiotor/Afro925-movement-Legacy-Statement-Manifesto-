@@ -70,11 +70,3 @@ We have to stop lying to ourselves about the "Industry." The data shows a harsh 
 [Twitter](https://x.com/fomabriggs)
 
 [Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
-
-
-### Feel free to connect
-[YouTube channel ](https://youtube.com/channel/UCOcjfkZBQY7EZY64m7kDUkA)
-
-[Twitter](https://x.com/fomabriggs)
-
-[Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
