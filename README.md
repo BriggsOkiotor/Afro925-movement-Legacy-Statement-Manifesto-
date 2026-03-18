@@ -70,3 +70,10 @@ We have to stop lying to ourselves about the "Industry." The data shows a harsh 
 [Twitter](https://x.com/fomabriggs)
 
 [Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
+
+
+♥️ LET LOVE LEAD ♥️
+
+Foma Briggs.
+Originator, Afro925™ Movement
+
