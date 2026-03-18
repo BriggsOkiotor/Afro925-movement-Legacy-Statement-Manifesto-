@@ -25,7 +25,7 @@ It was Thursday, December 7, 2023, 6:51 AM. Stuck in the notorious trafic crawl 
 - Background: Hailing from Delta State, now rooted in the rugged, high-energy environment of Ikorodu, Lagos.
 - Early Influence: The political defiance of Fela Kuti, the soulful resilience of Lucky Dube, and the global giant-step of Burna Boy.
 - Current Status: Balancing a high-stakes professional career at Lagos Island with the creative leadership of the Afro925 movement.
-- The Struggle: Foma has navigated the "Untold Challenges"—chronic betrayal, smear campaigns, financial "brokenness," and the heavy weight of depression and isolation.
+- The Struggle: Foma has navigated the "Untold Challenges", chronic betrayal, smear campaigns, financial "brokenness," and the heavy weight of depression and isolation.
 
 ### III. THE "WHY" (THE INTERNAL JOURNEY) ###
 What drives Foma Briggs is the refusal to let a dream die due to a lack of a "Sponsor."
@@ -33,18 +33,18 @@ What drives Foma Briggs is the refusal to let a dream die due to a lack of a "Sp
 The movement has transformed his career perspective. He no longer works just for a salary; he works to fund his "Venture Capital" project: his music.
 
 ### IV. CREDIBILITY & ANECDOTE ###
-* Direct Quote: "Hi, I'm Foma Briggs. I come to you as an artist and a movement. Of all that surrounds the table of Afrobeats, I render the best service and support. With Foma Briggs, Afrobeat can better breathe.
 * The 925er™ Anecdote: Imagine the transition straightening a tie in a boardroom while mentally rehearsing vocal warm-ups, or closing a complex data sheet at 4:00 PM to book a recording session.
 
 ### V. VALUES, MISSION & VISION ###
-- Mission Statement: To bridge the gap between corporate resilience and creative legacy. We empower the professional and entrepreneurial creative to redefine their 9-to-5 not as a cage, but as the Lead Venture Capitalist for their ultimate passion.
-- Vision Statement: To engineer a global ecosystem where no professional is too shy, too scared, or too limited to give their talent a fair shot. We envision a world where the 'Legacy of Attempt' is the standard, and every career fuels a manifestation.
+**Mission Statement:** To bridge the gap between corporate resilience and creative legacy. We empower the professional and entrepreneurial creative to redefine their 9-to-5 not as a cage, but as the Lead Venture Capitalist for their ultimate passion.
+- Vision Statement: To engineer a global ecosystem where no professional is too shy, too scared, or too limited to give their talent a fair shot. We envision a world where the Legacy of [Attempt](https://briggsokiotor.github.io/Afro925-Background/) is the standard, and every career fuels a manifestation.
   
-**• Core Values (The 4 Pillars):**
-• Autopilot Excellence: High-level delivery in the office and the studio.
-• Financial Sovereignty: Being your own first investor.
-• Radical Resilience: Turning struggles, pains, delays and betrayals into rhythmic energy.
-• Collective Growth: Rising by lifting others (showing others their dreams are fundable.)
+**• Core Values (The 5 Pillars):**
+- Autopilot Excellence: High-level delivery in the office and the studio.
+- Sanity and Balance: Mental, entrepreneurial and creative control
+- Financial Sovereignty: Being your own first investor.
+- Radical Resilience: Turning struggles, pains, delays and betrayals into rhythmic energy.
+- Collective Growth: Rising by lifting others (showing others their dreams are fundable.) 
 
 ### VI. THE "FALLEN STAR" REALITY (MARKET CONTEXT) ###
 Nigeria’s entertainment industry is littered with "Fallen Stars"—once-wealthy celebrities who are now in financial distress because they lacked a "Fall-Back" professional or entrepreneurial skill.
@@ -63,3 +63,18 @@ We have to stop lying to ourselves about the "Industry." The data shows a harsh 
 * The Goal: We are ensuring the next generation of "Professional or entrepreneurial Creatives" never ends up on a "Where are they now?" list of broken legends. **Join us now,** [Support here](https://paystack.shop/pay/Fomabriggs_test_1772099793035)
 
 ***"Your 9-to-5 isn't stopping your dream; it is the Venture Capitalist funding your next shot at it." — Briggs Okiotor*** 
+
+### Feel free to connect
+[YouTube channel ](https://youtube.com/channel/UCOcjfkZBQY7EZY64m7kDUkA)
+
+[Twitter](https://x.com/fomabriggs)
+
+[Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
+
+
+### Feel free to connect
+[YouTube channel ](https://youtube.com/channel/UCOcjfkZBQY7EZY64m7kDUkA)
+
+[Twitter](https://x.com/fomabriggs)
+
+[Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
