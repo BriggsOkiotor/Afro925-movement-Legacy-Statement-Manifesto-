@@ -60,7 +60,7 @@ We have to stop lying to ourselves about the "Industry." The data shows a harsh 
 * Fame is a Depreciating Asset: It loses value over time. Like a new car driving off the lot, fame loses value every day you don't have a "hit." If fame is your only asset, you are losing money.
 * Career is a Hedge: Your 9-to-5 (The Harvest) ensures you never fall into that 40-60% statistic. A 9-to-5 is your insurance policy. It ensures that even when the charts change, your lifestyle doesn't.
 * The Afro925 Solution: By being a 925er™, you are protected from the "Fallen Star" syndrome because your financial foundation is built on professional or entrepreneurial excellence, not just a trending song, which expires.
-* The Goal: We are ensuring the next generation of "Professional or entrepreneurial Creatives" never ends up on a "Where are they now?" list of broken legends. **Join us now,** [Support here](https://paystack.shop/pay/Fomabriggs_test_1772099793035)
+* The Goal: We are ensuring the next generation of "Professional or entrepreneurial Creatives" never ends up on a "Where are they now?" list of broken legends. **Join us now,** [Support here](https://paystack.shop/pay/support_afro925er-fomabriggs)
 
 ***"Your 9-to-5 isn't stopping your dream; it is the Venture Capitalist funding your next shot at it." — Briggs Okiotor*** 
 
